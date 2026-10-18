@@ -2,7 +2,7 @@
 
 _Last updated: [DATE]_
 
-This policy explains how Neon Peaks Solitaire ("the app"), published by [YOUR NAME OR STUDIO]
+This policy explains how Neon Peaks Solitaire ("the app"), published by Absolutezero91
 ("we"), handles information. Template only: review it and adjust to match your actual setup. This is
 not legal advice.
 
